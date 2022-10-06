@@ -1,4 +1,4 @@
-### Hi there 👋
+![i feel you](https://d2w9rnfcy7mm78.cloudfront.net/17299076/original_9dd05850b0ee1b5531eb68bab6dc580c.jpg?1658432685?bc=0)
 
 <!--
 **theericzhang/theericzhang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
